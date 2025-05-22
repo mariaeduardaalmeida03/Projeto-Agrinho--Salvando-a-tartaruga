@@ -1,1 +1,1 @@
-Espero fazer com que as pessos pensem na vida dos animais marinhos.
+Espero fazer com que as pessoas pensem na vida dos animais marinhos.
